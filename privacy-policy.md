@@ -1,5 +1,5 @@
 Privacy Policy  
-----------------
+-----------------
 
 ### Introduction  
 Our privacy policy will help you understand what information we collect at Employee HUB, how Codes Soft uses it, and what choices you have.
